@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Schoolin-You you can also call me XP
+- 🌱 I’m currently learning C#
+- 📫 How to reach me Number: (916)659-0431 Email: TTV_Wolfman@hotmail.com Snapchat: Not Made Yet
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Been playing video games since I was 5
